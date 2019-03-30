@@ -4,7 +4,7 @@ Beat: Lezter - Issues
 
 w ciebie nie wierzę, bo ciebie nie śledzę
 nie szukam tu pochwał - czy pustych ekscesów
-szukam naprawdę szanuję szczerze
+szukam naprawdę szanuję szczerze 
 
 
 nie wiem w co wierzyć
