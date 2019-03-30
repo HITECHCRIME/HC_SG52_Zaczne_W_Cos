@@ -20,6 +20,8 @@ nie szukam tu pochwał - czy pustych ekscesów
 szukam naprawdę szanuję szczerze
 chociaż w ciebie nie wierzę to
 
+byłem u ciebie
+
 bo nadaremnie odszukam 
 te wszystkie nasze występki
 twoje wiadomości
